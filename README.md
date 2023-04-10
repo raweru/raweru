@@ -1,4 +1,4 @@
-### Hello fellow geeksters! 👋
+## Hello fellow geeksters! 👋
 
 My name is Dominik Dekleva. 
 
