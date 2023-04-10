@@ -11,7 +11,7 @@ Currently geeking out on Data Science and all things AI/ML at AICore.
 I also produce electronic music when I have excess creative juices flowing. You can find me around jamming as Prince Officer.
 
 ## ⚡Personal one liner:
-Hard working, hyper curious guy who enjoys nature, good food, music, coding and books (very proud of my 📚 collection).
+Hard working, hyper curious natural-born problem solver who thrives under pressure and enjoys nature, good food, music, coding and books (very proud of my 📚 collection).
 
 ## 📫 How to reach me?
 [Email](mailto:dominik.dekleva@hotmail.com)  
