@@ -14,7 +14,7 @@ I also produce electronic music when I have excess creative juices flowing. You 
 Hard working, hyper curious guy who enjoys nature, good food, music, coding and books (very proud of my 📚 collection).
 
 ## 📫 How to reach me?
-[Email](dominik.dekleva@hotmail.com)  
+[Email](mailto:dominik.dekleva@hotmail.com)  
 [LinkedIn](https://www.linkedin.com/in/dominik-dekleva/)
 
 
