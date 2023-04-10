@@ -9,10 +9,9 @@ After academia I joined an early-stage startup Better Origin based in Cambridge,
 I also produce electronic music when I have excess creative juices flowing. You can find me around jamming as Prince Officer.
 
 ## ⚡Personal one liner:
-Hard working, hyper curious guy who enjoys nature, good food, music, coding and books. 
-(very proud of my 📚 collection)
+Hard working, hyper curious guy who enjoys nature, good food, music, coding and books (very proud of my 📚 collection).
 
-## 🌱 I’m currently geeking out on Data Science at AICore.
+### 🌱 I’m currently geeking out on Data Science at AICore.
 
 ## 📫 How to reach me?
 [Email](dominik.dekleva@hotmail.com)
